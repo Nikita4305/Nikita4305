@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Nikita4305
+- 👋 Hi, I’m @NikitaBhambani
 - 👀 I’m interested in ...Everything else singing 😁
 - 🌱 I’m currently learning ...everthing 
 - 💞️ I’m looking to collaborate on ...
