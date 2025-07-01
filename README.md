@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @NikitaBhambani
 - 👀 I’m interested in ...Everything else singing 😁
 - 🌱 I’m currently learning ...everthing 
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...you cant reach me 😂
 - 😄 Pronouns: ...she/her
 - ⚡ Fun fact: ...I am all funny until u saw my vibrant side
 - 
